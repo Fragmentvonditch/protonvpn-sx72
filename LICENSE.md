@@ -1,10 +1,10 @@
-Best ProtonVPN Extension | DNS leak protection + server switching is the best ProtonVPN extension with DNS leak protection and server switching. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/protonvpn-sx72/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
